@@ -13,8 +13,9 @@ Enquanto matéria, o PI tem o objetivo de realizar, de forma interdisciplinar, a
 
 ### Integrantes:
 1. André Henrique Macedo Ferreira
-2. Eduardo Ramos da Mota
+2. _Eduardo Ramos da Mota_ (2019 - 2020)
 3. Heitor Calestini Mendes
 4. Lucas Silva de Aragão
+5. Mayra Santana (2020 - ...)
 
 
